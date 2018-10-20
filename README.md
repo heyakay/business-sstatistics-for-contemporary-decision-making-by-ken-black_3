@@ -1,1 +1,1 @@
-# business-sstatistics-for-contemporary-decision-making-by-ken-black_3
+# business-statistics
